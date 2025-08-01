@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-I'm undergraduate of BIS at University of Sri Jayawardenepura.<br>I am a passionate UI/UX designer with a keen eye for creating intuitive and visually appealing digital experiences....
+I'm undergraduate of BIS at University of Sri Jayawardenepura.<br>I am a passionate UI/UX designer with a keen eye for creating intuitive and visually appealing digital experiences.
 
 ## 🌐 Socials:
 
